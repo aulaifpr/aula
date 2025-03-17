@@ -59,3 +59,5 @@ Os critérios para avaliação da atividade serão:
 - **Engajamento no Grupo**: Periodicidade, constância, contribuição individual, participação ativa no Fórum e comprometimento com os prazos.
 - **Qualidade das Fontes e Referências**: Uso de materiais confiáveis e bem fundamentados.
 - **Capacidade de Comunicação**: Clareza e objetividade na apresentação do vídeo e no Fórum.
+
+- **Tempo e qualidade/profundidade/relevância**.
