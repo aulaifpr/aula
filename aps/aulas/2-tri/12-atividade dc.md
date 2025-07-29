@@ -77,3 +77,5 @@ Felipe → [Eliandro](https://drive.google.com/file/d/13PFbpzC7CyFeCV2-2vM72S69T
 Eliandro → [Diego](https://drive.google.com/file/d/15yU6J5Ehz7HqkDajYv1_fuWncDewc2j-/view?usp=sharing)  
 Diego → [Brayan](https://drive.google.com/file/d/1HMXoMb234UMCOTybHzsv6S3MUXLGmOdI/view?usp=sharing)  
 Brasyn → [Mauro](https://drive.google.com/file/d/1Is4Pa--Ibc4jZuCU5OyH8gKqylr96KE8/view?usp=sharing)  
+
+pasta: https://drive.google.com/drive/folders/1cFHPDKYU_-FIU_E7YthSpkbG21Hwm4Bz?usp=sharing
